@@ -20,6 +20,6 @@ You can click the Preview link to take a look at your changes.
  myself and others. So if you have something you want to share feel free and ask or send.
  
  📫 How to reach me ...send me a message on my page zbyte-prog@github.com or my other zbyte-king@github.com the later is the easiest wy to find me on social media.
- tHank you for reading if you do. 
+ tHank you for reading if you do. Also, once i get my web page finished for my buisness Project ZApp http://projectzapp.com my enterprise account is projectzapp@github.
  
  I'm also looking for a job and free coding classes if anyone here has info tht'd be great Thank You!
